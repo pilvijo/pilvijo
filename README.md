@@ -6,7 +6,7 @@
 
 💞️looking to collaborate on issues related to digital services, making world a better place to live.
 
-📫 contact me how ever it feels suitable to you.
+📫 contact me however it feels suitable to you.
 
 <!---
 pilvijo/pilvijo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
